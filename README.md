@@ -1,9 +1,10 @@
 # aly.github.io
 Alyssa Margareth M. Pondang
 
+
 **Introduction about Wave To Earth!**
 
-![la lang]https://www.google.com/url?sa=i&url=https%3A%2F%2Fent.abs-cbn.com%2Fonemusic%2Farticles-news%2Fonemusicph-onemusicphtop10-wavetoearth-onmusicfestival-moaarena-nov3-20957&psig=AOvVaw3XtlAzRzRhCJ1ORHP_XH5j&ust=1701908616020000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLDzr93H-YIDFQAAAAAdAAAAABAD
+!https://www.google.com/url?sa=i&url=https%3A%2F%2Fent.abs-cbn.com%2Fonemusic%2Farticles-news%2Fonemusicph-onemusicphtop10-wavetoearth-onmusicfestival-moaarena-nov3-20957&psig=AOvVaw3XtlAzRzRhCJ1ORHP_XH5j&ust=1701908616020000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLDzr93H-YIDFQAAAAAdAAAAABAD
 
 *This is Wave To Earth. They're composed of 3 members. Daniel Kim, Soonjong Cha, and Dong Q. They debuted last August 2019 with the song 2019, and in January 2020 the released their first EP "Wave 0.01" with their new member Soonjong Cha. Here  are some songs that I would like to reccomend.*
 
