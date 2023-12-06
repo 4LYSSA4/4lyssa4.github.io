@@ -1,5 +1,5 @@
-# aly.github.io
-Alyssa Margareth M. Pondang
+# My Music Taste :P
+Alyssa Margareth M. Pondang - Gonzalez
 
 
 **Introduction about Wave To Earth!**
@@ -12,10 +12,23 @@ Alyssa Margareth M. Pondang
 <iframe width="560" height="315" src="https://www.youtube.com/embed/I_Es_7QGI94?si=W7yJxd7y1Z_fOJ6u" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
+*homesick - wave to earth from the album 0.1 Flaws and All*
+
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/aygggKXrN6g?si=-0XxcNmiyG51rDm2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+*gold - wave to earth from the EP wave 0.01*
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/uzFyx1glMyA?si=Ekq2b-MWMk990fyE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
+*light - wave to earth is a single released in 2019*
+
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/xao-4NA7PM0?si=o69Glch-iGRWVgRd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+*calla - wave to earth is a single released in 2022*
+
