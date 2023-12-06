@@ -1,4 +1,4 @@
-# My Music Taste :P
+# Get to know the Artists that I listen to!
 Alyssa Margareth M. Pondang - Gonzalez
 
 
@@ -32,3 +32,11 @@ Alyssa Margareth M. Pondang - Gonzalez
 
 *calla - wave to earth is a single released in 2022*
 
+
+
+
+**Introduction about Bruno Mars!**
+
+![image](https://i.scdn.co/image/ab6761610000e5ebc36dd9eb55fb0db4911f25dd)
+
+This is Bruno Mars.
