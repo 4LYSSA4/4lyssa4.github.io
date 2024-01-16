@@ -40,3 +40,21 @@ Alyssa Margareth M. Pondang - Gonzalez
 ![image](https://i.scdn.co/image/ab6761610000e5ebc36dd9eb55fb0db4911f25dd)
 
 This is Bruno Mars.
+
+
+Peter Gene Hernandez, known professionally as Bruno Mars, is an American singer-songwriter and record producer. He is known for his stage performances, retro showmanship, and for performing in a wide range of musical styles, including pop, R&B, funk, soul, reggae, disco, and rock.
+
+
+Here are some songs that I recommend listening to!
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oacaq_1TkMU?si=kgxjykYKjgDo5PAm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+*chunky - bruno mars from the album 24 magic*
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5twpnDFJpxo?si=6zWy4cf8RSe4QoHL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+*put on a smile - bruno mars, anderson paak, silk sonic from the studio album an evening with silk sonic*
